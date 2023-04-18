@@ -4,7 +4,7 @@
 
 Team Introduction:
 
-Team Lead:
+Team Lead: https://trailblazer.me/id/ssuriya17
 Team Member 1:https://trailblazer.me/id/rgokul8
 Team Member 2:https://trailblazer.me/id/sashokkumar8
 Team Member 3:https://trailblazer.me/id/rramaraj10
